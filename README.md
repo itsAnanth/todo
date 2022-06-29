@@ -1,4 +1,4 @@
 # todo
 
 coming soon . o O ( kappa kek )
-rip streak fr
+rip streak fr xd
